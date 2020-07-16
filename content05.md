@@ -23,8 +23,13 @@ https://web.archive.org/save/https://www.zhihu.com/question/317149521/answer/117
 https://weibo.com/6115023185/IF7RagQkE <br> 
 
 * 主编下场嘲讽读者纠结定价<br>  
+发表动态认为自家书成本高定价不贵 <br> 
 “600页左右的精装书，特种纸的护封，特种纸的衬纸，还带特种纸的书签。用的还是胶版纸。是不是定价20块钱比较合适呢。”<br>  
 https://www.douban.com/people/38074203/status/2929558648/<br>  
+但是认为日版书太贵了 <br> 
+“比起尸人庄，我更想看魔眼。不知道是不是后年见了。出个文库本也好啊，单行本将近2000，好贵。
+” <br> 
+https://www.douban.com/people/38074203/status/2481362176/ <br> 
 
 * 关于签名版的获取途径
 
