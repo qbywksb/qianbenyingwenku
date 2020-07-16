@@ -48,4 +48,5 @@ https://www.douban.com/people/38074203/status/2481362176/ <br>
 
 实际上刀城系列最初开工日期可以追溯到[2019年5月前](https://www.douban.com/people/38074203/status/2488573603/)，但是到2020年7月一本都没有出版。 <br> 
 持续有读者吐槽还没出版。<br> 
+https://tieba.baidu.com/p/6184698023 <br> 
 https://tieba.baidu.com/p/6815869306 <br> 
