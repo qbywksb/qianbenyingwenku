@@ -38,4 +38,11 @@ https://www.douban.com/people/38074203/status/2806927816/<br>
 
 ---
 
+* 拉踩磨铁 <br> 
+
+认为封面要修改还不如自己画 （但千本樱文库封面一直遭到读者诟病） <br> 
+https://www.douban.com/people/38074203/status/2525527644/ <br> 
+
+---
+
 更多群内截图不便于放出
