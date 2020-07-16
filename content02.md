@@ -1,3 +1,22 @@
 拉踩前辈
 ===
 
+千本樱编辑及其宣传成员主要针对以下几个方面抹黑前辈（包括新星出版社、人民文学出版社等）<br>  
+* 纸质差 
+其实千本樱文库只是选用了较重较贵的纸张，但是通俗小说的阅读需要的并不是纸张越厚越好。合适的才是最好的，也有读者个人喜好，并不存在绝对的高下之分。新星出版社（午夜文库）采用纸张本身在行业内并无问题，纯属抹黑。<br> 
+* 编辑校对错误
+新出版图书中错误是难免的，新星出版社在发现错误后会向发现者感谢，并第一时间改正。千本樱文库则只是抹黑读者、无视自身问题。<br> 
+详见 [剪刀男事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content06.md "三年磨一稿，我说好就是好")  和 [内文校对失误](https://github.com/qbywksb/qianbenyingwenku/blob/master/content04.md "自己质量过关吗") 两部分 <br>  
+* 同时出精装和平装是圈钱
+出现在 * [三三投票事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content05.md "我不要你有想法，听我的") 中，抹黑人民文学出版社（黑猫文库） <br>  
+
+
+“他们家编辑还天天在群里diss新星出版社diss读者”<br>  
+https://weibo.com/2380318083/JaSBTz78R <br>  
+“这个堂主是真的天天吐槽新星烂，说人家阿婆做的不好，我看千本樱做的书也不怎么样，浓浓的盗版味”<br> 
+https://book.douban.com/review/12720758/ <br> 
+
+
+---
+
+更多群内截图不便于放出
