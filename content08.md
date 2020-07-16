@@ -1,8 +1,8 @@
 千本樱文库主编欧阳博的其他轶事
 ===
 
-  <br>  
-* 翻译爆料
+
+* 翻译爆料  <br>  
 鼓动翻译做已售出版权的《玻璃鸟》民翻、答应好的稿子交给其他人翻译等  <br>  
 微博 ： https://weibo.com/5315361691/JaZMoohN1  <br>  
 豆瓣 ： https://www.douban.com/people/125228724/status/3027126123/  <br>  
@@ -14,6 +14,8 @@
 https://www.douban.com/people/38074203/status/3026405051/ <br>  
 部分转发回应 <br>  
 https://www.douban.com/people/38074203/status/3026405051/?tab=reshare#sep <br>  
+读者表达失望  <br>  
+https://www.douban.com/people/76428013/status/3026472765/ <br>  
 
 * 对京都动画纵火案评论<br> 
 [受害者有错逻辑](https://www.douban.com/people/38074203/status/2561490180/)<br> 
