@@ -27,6 +27,9 @@ diss新星纸不好 这个确实有一点问题 但是问题也不大 我好好�
 
 https://weibo.com/6115023185/Jb0rqyGcZ <br> 
 
+“我甚至可能患上了“纸质PTSD”，一听到有人“纸质纸质”的就感到浑身不舒服。”<br> 
+https://www.douban.com/people/84358063/status/3026472107/<br> 
+
 
 ---
 
