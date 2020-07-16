@@ -4,5 +4,5 @@
 https://book.douban.com/review/12720758/
 
 <br>  
-第三方被封防删<br>  
-https://web.archive.org/web/20200716050633/https://book.douban.com/review/12720758/
+第三方备份防删<br>  
+https://web.archive.org/web/20200716050633/https://book.douban.com/review/12720758/<br>  
