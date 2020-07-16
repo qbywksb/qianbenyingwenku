@@ -22,6 +22,10 @@ https://web.archive.org/save/https://www.zhihu.com/question/317149521/answer/117
 推理的确有市场但大家的钱也不是大风刮来的好吧<br> 
 https://weibo.com/6115023185/IF7RagQkE <br> 
 
+* 主编下场嘲讽读者纠结定价<br>  
+“600页左右的精装书，特种纸的护封，特种纸的衬纸，还带特种纸的书签。用的还是胶版纸。是不是定价20块钱比较合适呢。”<br>  
+https://www.douban.com/people/38074203/status/2929558648/<br>  
+
 * 关于签名版的获取途径
 
 最初表示人人有机会获得，之后表示要放在“漫库商城”概率抽选（有必中池），再之后…… <br> 
