@@ -11,6 +11,9 @@
 出现在 * [三三投票事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content05.md "我不要你有想法，听我的") 中，抹黑人民文学出版社（黑猫文库） <br>  
 
 
+---
+
+
 “他们家编辑还天天在群里diss新星出版社diss读者”<br>  
 https://weibo.com/2380318083/JaSBTz78R <br>  
 “这个堂主是真的天天吐槽新星烂，说人家阿婆做的不好，我看千本樱做的书也不怎么样，浓浓的盗版味”<br> 
