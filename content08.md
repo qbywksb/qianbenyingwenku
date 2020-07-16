@@ -15,15 +15,40 @@ https://www.douban.com/people/38074203/status/3026405051/ <br>
 部分转发回应 <br>  
 https://www.douban.com/people/38074203/status/3026405051/?tab=reshare#sep <br>  
 
+* 对京都动画纵火案评论<br> 
+[受害者有错逻辑](https://www.douban.com/people/38074203/status/2561490180/)<br> 
+“京都动画这次浩劫，我觉得很大程度源于近年游走在百合和言情的边缘。百合萌的怨念有时候很可怕的。当初，冈田磨里花开的百合欺诈就差点出事。指望人类理性永远是一种奢求。希望京都的大家平安无事！”<br> 
+但自己也[喜欢百合作品](https://www.douban.com/people/38074203/status/2694839208/)。<br> 
+
 * 口鉴新本格开端历史<br>  
 
 [又读了一遍，也许是某部小说的提纲也说不定。明天我是不是该去删下写过的书评呢？以后的新本格还是从绫辻行人为开端吧。](https://www.douban.com/people/38074203/status/2985749766/)<br>  
 
 * 对台版和大陆出书速度比自己快表达不满<br>  
+
 https://www.douban.com/people/38074203/status/2838823450/<br>  
 https://www.douban.com/people/38074203/status/2947741769/<br>  
 https://www.douban.com/people/38074203/status/2905590268/<br>  
+https://www.douban.com/people/38074203/status/2562467354/<br> 
 自己不争气，就知道怪别人，老阴阳了。<br>  
 
 <br>  
+
+* 吹捧自家书<br> 
+
+拉踩其他优秀作品<br> 
+https://www.douban.com/people/38074203/status/2744201352/<br> 
+https://www.douban.com/people/38074203/status/2724114189/<br> 
+读者态度<br> 
+https://www.douban.com/people/150543635/status/3026563604/<br> 
+
+* 酸得不到豆瓣推荐<br> 
+“豆瓣年度好书不就是看哪本给他带流量吗？赠书活动和新书推荐也是任人唯亲。怎么回事大家都懂。豆瓣那些所谓的客服，就跟西西弗的采购差不多。”<br> 
+https://www.douban.com/people/38074203/status/2737415085/<br> 
+辱骂豆瓣运营<br> 
+https://www.douban.com/people/38074203/status/2580089896/<br> 
+https://www.douban.com/people/38074203/status/2526317322/<br> 
+
+
+
 * 等待整理<br>  
