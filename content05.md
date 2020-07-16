@@ -2,6 +2,7 @@
 ===
 
 * 事件记录
+
 https://www.zhihu.com/question/317149521/answer/1177075671 <br> 
 第三方防删备份
 https://web.archive.org/save/https://www.zhihu.com/question/317149521/answer/1177075671  <br> 
@@ -11,6 +12,7 @@ https://web.archive.org/save/https://www.zhihu.com/question/317149521/answer/117
 原始投票地址：https://www.douban.com/group/topic/172738095/ <br> 
 
 * 普通读者质疑定价问题 
+
 本来嘛我对价格不太敏感，因为定价这东西吧肯定会打折，按照五折来看就好了<br> 
 改变这个想法是因为前两天买的《沉默的巡游》到了<br> 
 飞机盒包装，南海一贯的精装设计（特别爱），书特别厚所以就看了看出版信息，发现291k字，然后看了看定价59<br> 
