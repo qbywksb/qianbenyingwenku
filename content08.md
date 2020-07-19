@@ -6,6 +6,10 @@
 鼓动翻译做已售出版权的《玻璃鸟》民翻、答应好的稿子交给其他人翻译等  <br>  
 微博 ： https://weibo.com/5315361691/JaZMoohN1  <br>  
 豆瓣 ： https://www.douban.com/people/125228724/status/3027126123/  <br>  
+![image](https://img3.doubanio.com/view/status/l/public/87b8e7e11675c5d.webp)  <br>  
+![image](https://img9.doubanio.com/view/status/l/public/a48ec8fe184def6.webp)  <br>  
+![image](https://img3.doubanio.com/view/status/l/public/fb6f9733c5eba82.webp)  <br>  
+![image](https://img9.doubanio.com/view/status/l/public/733eb7523f30085.webp)  <br>  
 
 * 将私自印制的盗版书上传推特<br>  
 见[弹丸雾切事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content07.md "没过河，先拆桥")  <br>  
