@@ -10,6 +10,8 @@
 * 将私自印制的盗版书上传推特<br>  
 见[弹丸雾切事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content07.md "没过河，先拆桥")  <br>  
 
+![image](https://img3.doubanio.com/view/thing_review/l/public/4822903.webp)  <br>  
+
 * 无视品牌文化与读者感受，公开开嘲 <br>  
 https://www.douban.com/people/38074203/status/3026405051/ <br>  
 部分转发回应 <br>  
