@@ -62,3 +62,8 @@ https://web.archive.org/web/20200716054115/https://book.douban.com/review/127187
 5. “这个版本是目前市面上唯一且稿件质量最高的译文” 质量最高是通过市面唯一这样逻辑推导出的吗？绝妙逻辑啊。  <br> 
 6. 强调了各种工作的耗时问题，但是模糊了翻译校正的耗时问题。 <br> 
 7. 综上，宣传语中“沿用台湾经典译本，用时三年勘误前译本之错误，带来最准确最华美简体中文版本。” 看来只是时间和质量上的虚假宣传啊。 <br> 
+
+* 封面设计问题<br> 
+![image](https://img9.doubanio.com/view/photo/l/Tr6ArTkIZuoh_Bu_uIKPpg/125228724/x2614953633.jpg) <br> 
+![image](https://img9.doubanio.com/view/photo/l/ZNdtCi33NTL3WvEXLi1nLg/125228724/x2614953631.jpg) <br> 
+![image](https://img9.doubanio.com/view/photo/l/NeFYBPJ_l9bwWtoVm2UdGg/125228724/x2614953636.jpg) <br> 
