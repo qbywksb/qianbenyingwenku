@@ -67,3 +67,15 @@ https://web.archive.org/web/20200716054115/https://book.douban.com/review/127187
 ![image](https://img9.doubanio.com/view/photo/l/Tr6ArTkIZuoh_Bu_uIKPpg/125228724/x2614953633.jpg) <br> 
 ![image](https://img9.doubanio.com/view/photo/l/ZNdtCi33NTL3WvEXLi1nLg/125228724/x2614953631.jpg) <br> 
 ![image](https://img9.doubanio.com/view/photo/l/NeFYBPJ_l9bwWtoVm2UdGg/125228724/x2614953636.jpg) <br> 
+
+* 千本樱文库回应封面设计问题<br> 
+微信公众号文章：[樱酱带你了解《剪刀男》装帧设计！](https://mp.weixin.qq.com/s/1yyAc4UtrbqyMqAC70aeTA) <br> 
+“该设计是一种打破常规对齐的个性表达， <br> 
+也是提升文字编排和整体画面创意性最简单直接， <br> 
+最有力，最实用的设计技巧！ <br> 
+也是规避文字自身在组合编排中 <br> 
+产生视觉差的艺术手段， <br> 
+同时也是文字自适应和它适应有效结合体现！” <br> 
+回应了一段读不通、显得很有逼格的话，但是回应后配图的效果图，可以看到设计师给出的原设计没有错位。这波啊，是强行解释。 <br> 
+![image](https://mmbiz.qpic.cn/mmbiz_jpg/4OgXTCYnaPIU7JTXvLdT1a6ibAtyGbMGlFcZ2FibwOYaU73Dv7Gx3x365avPKu2P4bGQpsd0LNP41INnDjoFq1Sg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1) <br> 
+![image](https://img9.doubanio.com/view/photo/l/8UxSU0ahFkZ9IRPQZGy-jQ/125228724/x2615625108.jpg) <br> 
