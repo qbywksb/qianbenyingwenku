@@ -47,5 +47,5 @@ https://www.douban.com/group/topic/169107515/<br>
 在官方群中，官方人员表示漫库商城是最好的，有损坏都是快递的问题（可以换），并贬低当当、京东等的购物体验……（大致含义）<br>
 * 漫库渠道签名本究竟卖多少钱？<br>
 该条更新于2020年7月30日。<br>
-![image](https://www.douban.com/photos/photo/2615260576/#image)<br>
+![image](https://www.douban.com/photos/photo/2615625108/#image)<br>
 100%获得签本需要——首先，商城上架签本并没有被抢光；其次，作为漫库13级会员（需要至少充值1250元人民币）；最后用原价购入 <br>
