@@ -79,3 +79,4 @@ https://web.archive.org/web/20200716054115/https://book.douban.com/review/127187
 回应了一段读不通、显得很有逼格的话，但是回应后配图的效果图，可以看到设计师给出的原设计没有错位。这波啊，是强行解释。 <br> 
 ![image](https://mmbiz.qpic.cn/mmbiz_jpg/4OgXTCYnaPIU7JTXvLdT1a6ibAtyGbMGlFcZ2FibwOYaU73Dv7Gx3x365avPKu2P4bGQpsd0LNP41INnDjoFq1Sg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1) <br> 
 ![image](https://img9.doubanio.com/view/photo/l/8UxSU0ahFkZ9IRPQZGy-jQ/125228724/x2615625108.jpg) <br> 
+百度贴吧内也有讨论帖：[明明是印刷没弄好，居然还有脸说是设计，我的天，千本樱不会这么不要脸吧](https://tieba.baidu.com/p/6846527298) <br> 
