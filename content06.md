@@ -80,3 +80,6 @@ https://web.archive.org/web/20200716054115/https://book.douban.com/review/127187
 ![image](https://mmbiz.qpic.cn/mmbiz_jpg/4OgXTCYnaPIU7JTXvLdT1a6ibAtyGbMGlFcZ2FibwOYaU73Dv7Gx3x365avPKu2P4bGQpsd0LNP41INnDjoFq1Sg/640?wx_fmt=jpeg&tp=webp&wxfrom=5&wx_lazy=1&wx_co=1) <br> 
 ![image](https://img9.doubanio.com/view/photo/l/8UxSU0ahFkZ9IRPQZGy-jQ/125228724/x2615625108.jpg) <br> 
 百度贴吧内也有讨论帖：[明明是印刷没弄好，居然还有脸说是设计，我的天，千本樱不会这么不要脸吧](https://tieba.baidu.com/p/6846527298) <br> 
+
+* 纸质问题<br> 
+百度贴吧内有讨论帖：[不得不吐槽下千本樱的剪刀男，这本书是拖了大半年才出，然而不知道用的什么纸张，全书四小时多点看完的，书本已经变形变软了，外面书套也拱起来，套起来后居然合不拢，上面压了五本书压了一晚上都没好，甚至连盗版书纸张都比它精良，新星以纸张差出名，却从来没出现过这种问题，山本樱在一次次刷新自己的下限啊](https://tieba.baidu.com/p/6854471230) <br> 
