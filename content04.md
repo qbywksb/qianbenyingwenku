@@ -38,6 +38,9 @@
 见[微博](https://weibo.com/2784275211/Jd3qBcu5Z): <br>
 “堀还是崛，编辑大人也没分清楚呀” <br>
 
+* 封面错别字 <br>
+[《蒸汽歌剧》封面](https://img9.doubanio.com/view/photo/l/I2X-csArx7muUWTFvLnLTQ/125228724/x2616477516.jpg)出现错别字 <br>
+
 其他 <br>
 ===
 
