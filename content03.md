@@ -33,3 +33,14 @@ https://weibo.com/6115023185/IF7RagQkE <br>
 * 《推理要在早餐时》宣传 <br> 
 
 [见豆瓣书评页面](https://book.douban.com/review/12791280/) <br> 
+
+* 亚马逊《午夜零点的灰姑娘》电子书页面介绍张冠李戴<br> 
+
+[见豆瓣动态](https://www.douban.com/people/125228724/status/3117809091/) <br> 
+
+
+* 立潮官方书城打错书名<br> 
+
+[书城页面](http://book.lichaowenchuang.com/h5/#/pages/article_list/article_list?id=82&type=1&parentid=8)<br> 
+
+![image](https://img9.doubanio.com/view/photo/l/0stKrcqieachI4-nGafNYg/125228724/x2622408966.jpg) <br> 
