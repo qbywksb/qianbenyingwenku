@@ -23,6 +23,7 @@
 * [三三投票事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content05.md "我不要你有想法，听我的")  <br>  
 * [剪刀男事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content06.md "三年磨一稿，我说好就是好")  <br>  
 * [弹丸雾切事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content07.md "没过河，先拆桥")  <br>  
+* [三三签名本事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content11.md "买家能被你们耍的像狗一样")  <br>  
 * [千本樱合作渠道漫库相关](https://github.com/qbywksb/qianbenyingwenku/blob/master/content10.md "饭圈套路你没商量")  <br>  
 * [千本樱文库主编欧阳博的其他轶事](https://github.com/qbywksb/qianbenyingwenku/blob/master/content08.md "我烂任我烂")  <br>  
 <br>  
@@ -40,6 +41,7 @@
 
 更新日志
 ------- 
+2021/2/26 更新三三签名本事件部分 <br> 
 2020/10/8 更新宣传失误部分 <br> 
 2020/7/30 继续更新剪刀男部分、更新漫库签本部分 <br>  
 2020/7/23 更新新版剪刀男部分 <br>  
