@@ -25,6 +25,7 @@
 * [剪刀男事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content06.md "三年磨一稿，我说好就是好")  <br>  
 * [弹丸雾切事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content07.md "没过河，先拆桥")  <br>  
 * [三三签名本事件](https://github.com/qbywksb/qianbenyingwenku/blob/master/content11.md "买家能被你们耍的像狗一样")  <br>  
+* [《宝石商人理查德的谜鉴定》相关问题](https://github.com/qbywksb/qianbenyingwenku/issues/1 "粉丝劝你善良")  <br>  
 * [千本樱合作渠道漫库相关](https://github.com/qbywksb/qianbenyingwenku/blob/master/content10.md "饭圈套路你没商量")  <br>  
 * [千本樱文库主编欧阳博的其他轶事](https://github.com/qbywksb/qianbenyingwenku/blob/master/content08.md "我烂任我烂")  <br>  
 <br>  
